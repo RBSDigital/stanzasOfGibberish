@@ -1,3 +1,0 @@
-# stanzasOfGibberish
-solipsisms of ...
-### Next heading added
